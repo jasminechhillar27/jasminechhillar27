@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @jasminechhillar27 
 - 🌱 I’m currently studying in Poornima College of Engineering, Jaipur
-- 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me on my mail-id jasminechhillar999@gmail.com
 
 <!---
